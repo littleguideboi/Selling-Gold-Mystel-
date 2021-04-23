@@ -1,6 +1,6 @@
 Selling Gold
 
-Selling gold on Mystel (Available = 20m right now)
+Selling gold on Mystel (Available = 20m right now) [sold 5m already]
 
 1m = 6€
 
